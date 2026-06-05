@@ -1,7 +1,7 @@
 ## ✩ "I've held promises unbroken."
 
 <p align="center" width="100%">
-    <img src="https://komarev.com/ghpvc/?username=Aivaniel&style=for-the-badge&label=˚♡˚₊‧⁺˖&color=302f37"> 
+    <img src="https://komarev.com/ghpvc/?username=LINK-CLlCK&style=for-the-badge&label=˚♡˚₊‧⁺˖&color=302f37"> 
 </p>
  
 <p align="center">
@@ -11,10 +11,10 @@
 
 > *"Like trying to bend water
 Why would you even bother
-Time is like music
-Now you know I've got to kill it
-Wanting it all
-And the whole world will crumble and fall, woah"*
+> Time is like music
+> Now you know I've got to kill it
+> Wanting it all
+> And the whole world will crumble and fall."*
 
 ## **BYI**
 * **Try not to cover**
