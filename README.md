@@ -1,7 +1,7 @@
-## ✩ "I've held promises unbroken."
+## ✩ "Lord Drinker of the Moon."
 
 <p align="center" width="100%">
-    <img src="https://komarev.com/ghpvc/?username=LINK-CLlCK&style=for-the-badge&label=˚♡˚₊‧⁺˖&color=302f37"> 
+    <img src="https://komarev.com/ghpvc/?username=MIKALJI&style=for-the-badge&label=˚♡˚₊‧⁺˖&color=a6e3f6"> 
 </p>
  
 <p align="center">
