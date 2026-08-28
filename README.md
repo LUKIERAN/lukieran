@@ -11,10 +11,9 @@
 
 > *"I am not him."*
 
+<p align="center">
+⋆｡°✩
 </p>
-
-<p align=“center”>
-    ⋆｡°✩
 
 ## **BYI**
 * **Try not to cover**
