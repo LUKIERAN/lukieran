@@ -22,3 +22,14 @@
 * I heavily Kin Nico di Angelo, Dan Heng and Ardashir
 * Zhongli
 * Dan Feng
+
+## Display Status in game
+<p align="center">
+  <img src="https://img.shields.io/badge/Online-〇-4b9953?style=flat-square&logo=psychology&logoColor=white" />
+</p>
+<p align="center">
+  <img src="https://img.shields.io/badge/Offtab/W2I-☾-e3cba4?style=flat-square" />
+</p>
+<p align="center">
+  <img src="https://img.shields.io/badge/DNI/AFK-ㄨ-844454?style=flat-square" />
+</p>
