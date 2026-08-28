@@ -50,3 +50,4 @@
 * **Ardashir:** Neutral mood. Most likely on and off-tab. Occasional messages here and there.
 * **Zhongli:** Off-tab
 * **Nico di Angelo:** AFK, NV, and or Off-Tab.
+* Any other cosplay, I’m more than likely off-tab.
