@@ -32,7 +32,15 @@
 * I also kin Zhongli and Dan Feng
 * **Yume Characters:** Vedrfolnir (Genshin Impact) with my OC Song Feng. Tragodia (Arknights) or Logos (Arknights) with my OC Perish.
 * **Ships that I’m okay to interact with:** ArdaminA, Chili (Friends only), Haikaveh (Strictly Friends only), Caeheng, Renfeng (Friends only), other ships, whisper if unsure (directed at friends and strangers).
-  
+
+## ✩ Media Interests
+* **ARKNIGHTS and Endfield**
+* ORV
+* *Link Click*
+* Granblue Fantasy
+* Genshin
+* HSR (Warning: Stopped after M. Blade Released)
+
 ## ✩ Display Status in game
 <p align="center">
   <img src="https://img.shields.io/badge/Online-〇-4b9953?style=flat-square&logo=psychology&logoColor=white" />
