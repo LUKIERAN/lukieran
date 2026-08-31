@@ -40,6 +40,7 @@
 * Granblue Fantasy
 * Genshin
 * HSR (Warning: Stopped after M. Blade Released)
+* MDZS and TGCF
 
 ## ✩ Display Status in game
 <p align="center">
