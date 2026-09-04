@@ -27,6 +27,16 @@
 *  **If I'm doing something and it bothers you. Tell me. I can't read minds or body language over a device. I wish I could.**
 * **I Hide Freely** it's usually 15min to 24hrs.
 
+<p align="center">
+⋆｡°✩
+</p>
+
+<p align="center">
+ <image arc=“https://i.imgur.com/9FXLXxT.jpeg<img width="1280" height="639" alt="image" src="https://github.com/user-attachments/assets/d2c5dac8-6d23-417f-a2b1-c7843d10ee30" />
+
+
+
+     
 ## ✩ **Character LIST, ect.**
 * I heavily Kin Nico di Angelo, Dan Heng and Ardashir
 * I also kin Zhongli, Dan Feng, and Liu Xiao
@@ -38,6 +48,13 @@
 
 * ArdaminA, Chili (Friends only), Haikaveh (Strictly Friends only), Caeheng, Renfeng (Friends only), ShiGuang (Link Click), JaeXiao (Link Click), other ships, whisper if unsure (directed at friends and strangers).
 
+<p align="center">
+⋆｡°✩
+</p>
+
+<p align="center">
+ <image src="https://i.imgur.com/SgQreXc.jpeg<img width="1536" height="764" alt="image" src="https://github.com/user-attachments/assets/729874e3-b78b-4d7f-8932-eaf0859d730c" />
+     
 ## ✩ Media Interests
 * **ARKNIGHTS and Endfield**
 * ORV
@@ -47,6 +64,14 @@
 * HSR (Warning: Stopped after M. Blade Released)
 * MDZS and TGCF
 
+<p align="center">
+⋆｡°✩
+</p>
+
+<p align="center">
+ <image src="https://i.imgur.com/AoxUbp1.jpeg<img width="1883" height="900" alt="image" src="https://github.com/user-attachments/assets/f835265a-0ade-4b1f-89a9-a81067603fbc" />
+
+     
 ## ✩ Display Status in game
 <p align="center">
   <img src="https://img.shields.io/badge/Online-〇-4b9953?style=flat-square&logo=psychology&logoColor=white" />
